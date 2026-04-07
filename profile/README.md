@@ -1,4 +1,4 @@
-# 🚀 Geniousoft - Creative Digital Agency
+# 🚀 Geniousoft 
 
 Welcome to **Geniousoft** – Your Partner for Digital Innovation and Transformation
 
